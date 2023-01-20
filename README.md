@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on DEVELOPING PROGRAMMING LOGIC'S<br>👯 I’m looking to collaborate on PROJECTS<br>🤝 I’m looking for help with JAVA DEVELOPERS<br>🌱 I’m currently learning JAVA LANGUAGE<br>💬 Ask me about CODING RELATED STAFF<br>⚡ Fun fact [NOOB ON THE WAY]
+🔭 I’m currently DEVELOPING PROGRAMMING LOGIC'S<br>👯 I’m looking forward to collaborate on PROJECTS<br>🤝 I’m ready to help with JAVA DEVELOPMENTS<br>🌱 I’m currently learning JAVA LANGUAGE<br>💬 Ask me about CODING RELATED STUFFS<br>⚡ Fun fact [NOOB ON THE WAY]
 
 
 ## 🌐 Socials:
